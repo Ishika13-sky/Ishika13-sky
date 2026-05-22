@@ -1,4 +1,5 @@
 Hi, I'm Ishika Dang 👋
+
 Incoming MSc Financial Data Science · University of Birmingham (September 2025)
 Data Analyst · Wipro · 2 years industry experience
 📍 Birmingham, UK · LinkedIn
